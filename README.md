@@ -1,4 +1,4 @@
 FIST
 ====
 
-Lets do it
+Lest do it Fisters!!!
